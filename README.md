@@ -1,1 +1,0 @@
-# bmgraphics.com
